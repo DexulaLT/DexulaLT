@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DexulaLT
+- 👀 I’m interested in Coding Games
+- 🌱 I’m currently learning C++ Coding
+- 💞️ I’m looking to collaborate on Dont Know
+- 📫 How to reach me Discord : _drakos12
